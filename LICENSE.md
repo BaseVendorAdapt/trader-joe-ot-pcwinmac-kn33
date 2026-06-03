@@ -1,4 +1,4 @@
-# 
+# محدث trader joe trading bot امتدادات لـ Mac OS | مميز trader joe trading bot امتدادات لـ PC Windows. مع إدارة الرافعة المالية و صنعة السوق — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
